@@ -109,7 +109,7 @@
 > 介入术创伤小恢复快，而搭桥术非常痛苦，恢复也很慢，一般正常人都会选择介入术。
 > 结果客户在理赔时才发现，这款重疾险只保搭桥术，介入术是不赔的…
 
-<img src="https://tva1.sinaimg.cn/large/007S8ZIlly1gfvn40vzt2j30wy0twe7t.jpg" alt="QQ20200617-220907@2x" style="zoom:40%;" />
+<img src="https://tva1.sinaimg.cn/large/007S8ZIlly1gfvn40vzt2j30wy0twe7t.jpg" alt="QQ20200617-220907@2x" style="zoom:20%;" />
 
 可以看到，各款产品还是有一定差异的。
 
