@@ -8,9 +8,9 @@
 
 朋友圈的众筹已经屡见不鲜，都是身边的亲戚朋友认识的人，因为一场大病，全家生活回到原始社会，最后还不一定能不能保得住命。
 
-到时候我就一死一了百了
+可能有些人会想到时候我就一死一了百了，不说你自己珍不珍惜自己的命，你的亲人都不会同意。
 
-1.疾病风险：成年人=重疾险+医疗险) ，老年人=防癌医疗+医疗险)  
+1.疾病风险：成年人=重疾险+医疗险)，老年人=防癌医疗+医疗险  
 
 2.身故风险：寿险+意外险
 
@@ -24,7 +24,7 @@
 
 ## 重大疾病分布
 
-<img src="/Users/liwenhao/Desktop/病种分布.png" alt="病种分布" style="zoom:50%;" />
+<img src="https://tva1.sinaimg.cn/large/007S8ZIlly1gfvn1gs7jhj30uq0h4119.jpg" alt="病种分布" style="zoom:50%;" />
 
 ## 保险有哪几种？区别？
 
@@ -109,7 +109,7 @@
 > 介入术创伤小恢复快，而搭桥术非常痛苦，恢复也很慢，一般正常人都会选择介入术。
 > 结果客户在理赔时才发现，这款重疾险只保搭桥术，介入术是不赔的…
 
-<img src="/Users/liwenhao/Desktop/v2-3d2289c52d4e89bc288c44475c84dbb1_r.jpg" alt="v2-3d2289c52d4e89bc288c44475c84dbb1_r" style="zoom:40%;" />
+<img src="https://tva1.sinaimg.cn/large/007S8ZIlly1gfvn40vzt2j30wy0twe7t.jpg" alt="QQ20200617-220907@2x" style="zoom:40%;" />
 
 可以看到，各款产品还是有一定差异的。
 
@@ -216,7 +216,7 @@
 
 要注意特别约定部分:
 
-<img src="/Users/liwenhao/Desktop/v2-1d84b864a120ea3ab6636e6ea6374a80_1440w.jpg" alt="v2-1d84b864a120ea3ab6636e6ea6374a80_1440w" style="zoom:30%;" />
+<img src="https://tva1.sinaimg.cn/large/007S8ZIlly1gfvn469sgmj30u00uj0wv.jpg" alt="v2-1d84b864a120ea3ab6636e6ea6374a80_1440w" style="zoom:30%;" />
 
 一定要要注意细节, 举个例子,口号招牌打着包100万的意外险其实是这样的：
 
